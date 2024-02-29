@@ -2,4 +2,4 @@
 
 Regent Language International - British Council Accredited school
 
-[RLI](https://www.regent.edu.lk/)
+[Regent.edu.lk](https://www.regent.edu.lk/)
