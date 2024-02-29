@@ -1,2 +1,5 @@
-# dip-in-english
-Diploma in English - RLI
+# Dipoma in English
+
+Regent Language International - British Council Accredited school
+
+[RLI](https://www.regent.edu.lk/)
